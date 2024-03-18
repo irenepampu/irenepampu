@@ -1,4 +1,4 @@
-### Hi there this is my portfolio 👋
+### Hi 👋
 
 About me: 
 - I'm an engineering graduate;
